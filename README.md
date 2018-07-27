@@ -9,11 +9,11 @@
 
 #### 若出现二维码，请截图，然后打开微信扫描时导入此二维码付款。或使用其他支付。
 #### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
-#### [1.2 常规资源购买 点击查看](http://www.junfaka.com/cay/56121921DD2DE769)
+#### [1.2 常规资源购买 点击查看](http://957ka.com/liebiao/FBD5FFA14B96D877)
 #### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
-#### [2.2 明星资源购买 点击查看](http://www.junfaka.com/cay/6D553B9151091C22)
+#### [2.2 明星资源购买 点击查看](http://957ka.com/liebiao/44D7C090A02CB6AE)
 #### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
-#### [3.2 网红资源购买 点击查看](http://www.junfaka.com/cay/F952B924CB8B23ED)
+#### [3.2 网红资源购买 点击查看](http://957ka.com/liebiao/BEB4C29F821AE6FA)
 #### [4.1 韩国限制级电影资源 点击查看](https://pan.baidu.com/s/1PzuX-UHQ9xqkgcZiezd47Q)
 #### [4.2 韩国限制级电影购买 点击查看](http://www.junfaka.com/cay/A3FC981843ED25FD)
 
